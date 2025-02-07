@@ -1,10 +1,29 @@
-- 👋 Hi, I’m @ad3laid3
-- 👀 I’m interested in AHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
-- 🌱 I’m currently learning quantification
-- 💞️ I’m looking to collaborate on nothing im here to make strange things
-- 📫 How to reach me ... discord adelaidesf
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: balls
+# 🌙 ✧ Adelaide's Playground ✧ 🌙
+
+## 👾 21 | USA | Gaming Goddess | Stoner 👾
+
+### 💋 Your Blue-Eyed Gaming Companion
+- 🎮 **Nerdy & flirty trans beauty**
+- 🎥 **Future streamer with a wild side**
+- 🌍 **Always craving adventure**
+- 🕹️ **Ready to play any game you want**
+
+---
+
+## 🎮 Current Obsessions
+- 🦸 **Marvel Rivals**
+- 🌲 **Sons of the Forest**
+- 🚀 **Outer Worlds**
+- 👻 **DPA (your Little Hope obsessed e-girl)**
+
+---
+
+## 💔 What Makes Me Weak
+- 👽 **Alien (Ridley Scott timeline only... it's just better, sorry)**
+- 🌌 **Interstellar's endless possibilities**
+- 🔪 **Saw's intense scenarios**
+- ☄️ **Any sci-fi that lets me imagine the end times**
+- 🩸 **Horror that makes me shake**
 
 <!---
 ad3laid3/ad3laid3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
